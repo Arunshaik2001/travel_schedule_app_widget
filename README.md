@@ -4,3 +4,4 @@ Travel Schecule App Widget Flutter for both IOS and Android
 
 ## Getting Started
 
+https://gfycat.com/alivenearcob
